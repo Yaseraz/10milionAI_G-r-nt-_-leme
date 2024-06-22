@@ -1,1 +1,1 @@
-# 10milionAI_G-r-nt-_-leme
+# 10milionAI Goruntu Isleme Proje Teslimi
